@@ -1,3 +1,3 @@
 # Janefaith19.github.io
-portfolio
-activity- August 22nd 
+Portfolio
+activity- August 22nd - ongoing project
